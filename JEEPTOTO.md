@@ -1,0 +1,11 @@
+- 👋 Hello im @amanda1974836
+- 👀 are you interested in me
+- I am very independent
+- 💞️ would you like to be friends with me
+- 📫 so my account to be friends with anyone
+- I work as a marketing
+- 👀
+- the brand i'm making is jeeptoto
+- visit my profile to join the group I created
+- 👀
+- 👀
